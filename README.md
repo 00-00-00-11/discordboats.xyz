@@ -1,2 +1,0 @@
-# discordboats.xyz
-nothing special
